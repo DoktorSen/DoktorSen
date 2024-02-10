@@ -1,1 +1,1 @@
-**NIE BĘDZIE NIEMIEC PLUŁ NAM W TWARZ, NI DZIECI NAM GERMANIŁ**
+My Discord: **doktorsen**
