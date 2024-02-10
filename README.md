@@ -1,4 +1,9 @@
--Hello my name is Maja and I am from Poland
--I speak Polish, English and most slavic languages. I am learning Russian, Turkish and German for now
--I am able to make scripts in Lua and I do sound production a bit, I am a beginner though
--I work on Roblox projects
+
+
+
+**CONTACT ME**
+- Roblox: [https://www.roblox.com/users/2727594091/profile](https://www.roblox.com/users/2727594091/profile)
+
+- Discord: **doktorsen**
+
+
